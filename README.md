@@ -1,2 +1,2 @@
 Siarhei Lysyi
-https://www.codecademy.com/users/5568404638/achievements
+https://www.codecademy.com/users/siarhei_lysyi/achievements
